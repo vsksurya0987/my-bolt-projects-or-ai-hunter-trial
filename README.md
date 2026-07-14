@@ -1,0 +1,1 @@
+# my-bolt-projects-or-ai-hunter-trial
